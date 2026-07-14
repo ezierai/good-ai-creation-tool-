@@ -1,0 +1,2 @@
+https://ezier.ai/
+Ezier AI uses advanced AI technology to help users generate unique images and videos from simple descriptions and creative ideas.
